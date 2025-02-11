@@ -40,3 +40,5 @@ Kullanan kişiler, **sertleşme süresi, yan etkiler ve genel memnuniyet** açı
 ❌ **Böbrek veya karaciğer hastalığı olanlar** doktor kontrolünde kullanmalıdır.  
 
 Lifta 20 mg, **uzun etkili sertleşme tedavisi sunan bir ilaçtır** ve doktor önerisiyle kullanılmalıdır. Güncel fiyat bilgisi ve kullanıcı yorumları için **eczaneleri veya güvenilir platformları takip edebilirsiniz**.
+
+Daha fazla bilgi için: [Lifta 20 mg Resmi Web Sitesi](https://www.lifta20mg.org/)
